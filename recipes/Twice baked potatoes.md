@@ -1,0 +1,30 @@
+Twice baked potatoes
+https://smittenkitchen.com/2014/12/twice-baked-potatoes-with-kale/
+
+Serves 6 as a side; 3 as a hearty main
+
+3 russet potatoes (mine were 9 to 10 ounces each)
+1 bundle lacinato kale (aka dinosaur, tuscan or black kale), swiss chard or spinach (10 ounces)
+Coarse salt
+1 tablespoon olive oil
+1 tablespoon butter
+1 large leek
+1 cup coarsely grated cheddar, gruyere or comté, 2/3 cup finely grated parmesan or pecorino, or 1/2 to 2/3 cup cream cheese or goat cheese, softened
+3/4 cup sour cream
+Freshly ground black pepper or red pepper flakes to taste
+
+Heat oven to 400°F (205°C).
+
+Cook potatoes the first time: Gently scrub potatoes but do not peel. Pierce all over with a fork so that steam escapes [raise your hand if you’ve forgotten to do this and had the pleasure of jumping three inches off the sofa due to an oven ka-pow!] Bake 1 hour to 1 hour 15 minutes or until potatoes are tender when pierced in center with a skewer. Leave oven on.
+
+Alternatively, you could microwave fork-pierced potatoes for 10, turning them over halfway through to ensure even cooking. You could also boil the whole potato for 15 minutes.
+
+While potatoes cook, prepare your filling: Tear kale, chard or spinach leaves from stems (you can save the stems for another use, such as a vegetable stock or juicing) and plunge leaves in cold water to remove any residual dirt or grit. No need to dry them when you’re done. Tear leaves into large chunks. Heat a skillet over medium-high and add greens and a pinch of salt. Cook them in the pan with just the water clinging to the leaves until they wilt and collapse. Transfer to a colander and when cool enough to handle, wring out any extra moisture in small fistfuls. On a cutting board, finely chop greens. You should have about a cup of wrung-out, well-chopped greens; don’t worry if you have a little more or less.
+
+Trim leek down to just yellow and pale green part. Halve lengthwise — if it’s gritty inside, plunge it in cold water to remove grit, then pat dry. Cut leek halves lengthwise again, so that they’re in quarter-stalks, and thinly slice.
+
+Heat a large skillet over medium heat; add butter and oil. Once both are warm, add leek and reduce heat to medium-low. Cook until mostly tender and sweet, about 10 to 15 minutes, stirring occasionally. Try to avoid letting it brown. Add chopped greens back to skillet and warm with leeks, 1 minute. Transfer mixture to a bowl.
+
+Prepare potatoes: When potatoes are cool enough to handle, halve lengthwise and scoop out all but the last 1/4-inch thickness of skin and potato (essentially, you want to leave a shell inside for stability) and add potato filling to bowl with leeks and greens. Arrange the potato shells on a baking sheet. Mash potatoes, leeks and greens together until smooth. Stir in the sour cream, 3/4 of cheese and more salt and pepper than you think you’ll need. Heap filling in prepared potato skins. Sprinkle with remaining 1/4 of cheese.
+
+Bake potatoes a second time: For 20 to 30 minutes, until bronzed and crisp on top.
